@@ -1,5 +1,11 @@
 # Les 5 niveaux de leadership : Atteignez votre plein potentiel de John C. Maxwell
 
+
+> “Leadership is influence. It is the ability to obtain followers. When the leader lacks confidence, the followers have no commitment. A leader is great not because of his power, but because of his ability to empower others.”
+> — John C. Maxwell
+
+"Si vous pensez que vous dirigez mais que personne ne vous suit, alors vous ne faites qu’une promenade."
+
 ## Les 5 niveaux de leadership
 
 ### Niveau 1 : Position
